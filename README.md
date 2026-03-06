@@ -20,3 +20,4 @@
 
 [retro games](https://emulatorgamer.com/)
 
+[addictinggames.com](https://www.addictinggames.com/)
